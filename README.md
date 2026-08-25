@@ -1,6 +1,6 @@
 # Hi there 👋
 
-I am Arielle! I'm a computer engineer living in the Philippines.
+I am Arielle! I'm a Computer Engineer living in the Philippines.
 
 I completed my Bachelor's Degree in Computer Engineering at Ateneo de Davao University, graduating as *Magna Cum Laude*.
 
