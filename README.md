@@ -18,7 +18,7 @@ Across my projects I've used multiple tools and applications, here are some of t
 
 
 ## Contact Me!
-📫 How to reach me: Send me an email at afrosete04@gmail.com or message me in LinkedIn :)
+📫 How to reach me: Send me an email at ariellerosete.ar@gmail.com or message me in LinkedIn :)
 
 
 ## A Bit About Me
